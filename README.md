@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Pappana Sai Krishna Priya
-- 🌱 I’m currently a student of BCA at MBU,Tirupati
 - 
 
 <!---
